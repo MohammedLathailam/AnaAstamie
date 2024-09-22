@@ -10,4 +10,4 @@
 
 ## Contact Information
 
-For any questions or concerns regarding the privacy policy, please send [[AnaAstamie]] an email to [[Contact Email Address]].
+For any questions or concerns regarding the privacy policy, please send [[AnaAstamie]] an email to [[mohammed.lathailam10@gmail.com ]].
